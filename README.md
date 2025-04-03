@@ -1,0 +1,1 @@
+# rijal_resolusi_2025
